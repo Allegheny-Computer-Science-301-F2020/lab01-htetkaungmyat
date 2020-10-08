@@ -25,7 +25,7 @@
  the firm and consumers are necessary when obtaining them.
 
 - Who stands to lose or to gain something from this form of analysis?
- - Different firms which collects from its consumers
+ - Different firms which collects from its consumers.
 
 
 ### Article 2
